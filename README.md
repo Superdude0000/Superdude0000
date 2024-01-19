@@ -4,7 +4,6 @@
 - 💞️ I’m part of the Project: Darius the mailman 2
 - 📫 How to reach me:
 Superdude#9462 (discord username)
-Twitter link: https://twitter.com/Cooldudedavids
-Newgrounds link(yes I use newgrounds. DON'T JUDGE ME!): https://dsartworks.newgrounds.com/
+Twitter link: https://twitter.com/Itssuperdude
 
 That's it.
