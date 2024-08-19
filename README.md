@@ -8,4 +8,3 @@ Twitter link: https://twitter.com/Itssuperdude
 
 That's it.
 
-Man I haven't used this in so long
